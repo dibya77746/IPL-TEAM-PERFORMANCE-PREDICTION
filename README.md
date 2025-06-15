@@ -140,7 +140,7 @@ Created By Dibya jyoti Mishra
 Currently purchase B. SC computer science
 Connect for collab github - https://github.com/dibya77746/IPL-Team-Winning-Prediction.git
 
-Linkdin -  Dibya_jyoti_mishra
+Linkdin -  https://www.linkedin.com/dibya-jyoti-mishra
 ---
 
 🙏 Special Thanks
